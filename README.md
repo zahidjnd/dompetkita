@@ -1,2 +1,0 @@
-# dompetkita
-catatan keuangan
